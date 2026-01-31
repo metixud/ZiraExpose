@@ -17,7 +17,7 @@ cheat driver : https://pastebin.com/raw/ibBvjgiw ( pasted and dtc )
 
 him watching p°rn : https://i.imgur.com/F7tTEYg.png / https://i.imgur.com/0aJcLk9.png
 
-proof of logging : https://cdn.discordapp.com/attachments/1466509403774783578/1466521235021234322/image.png?ex=697e5d55&is=697d0bd5&hm=22848189200b0be8f49cc41bcab58221149158830b3ced81980f60bdefa720b4&
+proof of logging : https://i.imgur.com/1STCOkd.png
 
 
 old paypal : https://paypal.me/ghostqlf
