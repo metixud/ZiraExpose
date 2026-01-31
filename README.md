@@ -22,7 +22,7 @@ proof of logging : https://cdn.discordapp.com/attachments/1466509403774783578/14
 
 old paypal : https://paypal.me/ghostqlf
 
-
+We found that zira use roblox.com.py ( fake roblox site for grabbing acc ) and use it on kids. 
 
 i have more stuff but lazy to put it here.
 
